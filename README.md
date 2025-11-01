@@ -1,16 +1,41 @@
-## Hi there 👋
+━━━━━━ ◦ ❖ ◦ ━━━━━━
 
-<!--
-**Mooniea/Mooniea** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+┊         ┊       ┊   ┊    ┊        ┊
+
+┊         ┊       ┊   ┊   ˚✩ ⋆｡˚ ✩
+
+┊         ┊       ┊   ✫
+
+┊         ┊       ☪⋆
+
+┊ ⊹
+
+✯ ⋆      ┊ . ˚
+
+˚ 
+
+
+" in every life, it's always you "
+
+
+Basic dni:;
+- homophobic
+- ragebait(smh)
+- kids under 13.
+- fucking p*dhophile.
+
+    i like poets, drawing and writing !!
+  i am proud pansexual and she / her person!! :3
+  i also joke a lot around my moots but they're not serious!! 
+  ( bonus: I'm a mentally unstable, overthink and also hypersexual person, so please don't hate me for it! )
+
+That's all!
+[i might add more later!!!]
+
+ 
+ 
+ ╭  “ The sun rise but why i still feel something empty inside me? i miss you. Come back...or not. ”  ╯
+
+━━━━━━ ◦ ❖ ◦ ━━━━━━
