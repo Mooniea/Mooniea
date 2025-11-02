@@ -31,7 +31,8 @@ Basic dni:;
   - i also joke a lot around my moots but they're not serious!!
   - i also still in denial, please iwecare with me.
   
-( bonus: I'm a mentally unstable, overthink and also hypersexual person, so please don't hate me for it! )
+( bonus: I'm a mentally unstable, overthinking and also hypersexual person. 
+if i afk without reason then i suddenly have a sudden anxiety attack. )
 
 That's all!
 [i might add more later!!!]
