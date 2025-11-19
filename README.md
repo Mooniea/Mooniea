@@ -19,7 +19,7 @@
 
 " in every life, it's always you "
 
-[ i go by Putri or Daisy! Please just call me Daisy if we're not close. "Putri" nickname only allowed to my friends and bf]
+[ i go by Putri or Daisy! Please just call me Daisy if we're not close. "Putri" nickname only allowed to my friends and close friends]
 
 Basic dni:;
 - homophobic
