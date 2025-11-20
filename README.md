@@ -39,7 +39,7 @@ That's all!
 
           -
        
-   [ if u want to know more about me js add my discord: payyourattention2me ]
+   [ if u want to know more about me js add my discord: thesacrificealways_.success ]
  
  ╭  “ The sun rise but why i still feel something empty inside me? How unfortunate. ”  ╯
 
